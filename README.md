@@ -1,6 +1,6 @@
 # 📸Screenshots:
 
-![3](![3](https://telegra.ph/file/15a3a27b395607dca9b3a.jpg)
+![3](https://telegra.ph/file/15a3a27b395607dca9b3a.jpg)
 
 # 🗃️[ᴅoᴡɴʟoᴀᴅ](https://tinyurl.com/mrxu7hyv)
 
