@@ -1,8 +1,6 @@
 # 📸Screenshots:
 
-![3](https://github.com/abinashbest71/-/assets/163727208/ca181ea6-ee5d-462e-a008-601343d96269)
-
-![2](https://github.com/abinashbest71/-/assets/163727208/bae6d247-21c7-4aba-b203-48a8ecd13c46)
+![3](![3](https://telegra.ph/file/15a3a27b395607dca9b3a.jpg))
 
 # 🗃️[ᴅoᴡɴʟoᴀᴅ](https://tinyurl.com/mrxu7hyv)
 
